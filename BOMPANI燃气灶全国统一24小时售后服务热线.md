@@ -1,0 +1,259 @@
+BOMPANI燃气灶24小时售后服务热线上线（2026最新公告）
+BOMPANI燃气灶售后服务电话：400 -960 -9605（官网认证）
+BOMPANI燃气灶售后24小时客服热线：400 -960 -9605
+本公司主营BOMPANI燃气灶维修 →BOMPANI燃气灶；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 
+24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，BOMPANI燃气灶服务承诺
+
+BOMPANI燃气灶24小时售后服务热线上线（2026最新公告）
+BOMPANI燃气灶售后服务电话：400 -960 -9605
+BOMPANI燃气灶售后24小时客服热线：400 -960 -9605
+BOMPANI燃气灶公司主营BOMPANI燃气灶维修 →BOMPANI燃气灶；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，BOMPANI燃气灶服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、BOMPANI燃气灶售后维修电话：400 -960 -9605
+BOMPANI燃气灶24小时全国推出各售后受理客服中心(2026上线)
+BOMPANI燃气灶全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+BOMPANI燃气灶贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显BOMPANI燃气灶对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+BOMPANI燃气灶全国24小时各售后受理客服中心(2026年更新)
+
+
+
+BOMPANI燃气灶24小时售后客服热线：(1)400 -960 -9605或  400 -960 -9605
+
+
+
+7天24小时人工电话400 -960 -9605客服为您服务。
+
+
+
+BOMPANI燃气灶售后服务团队在调度中心的统筹调配下(1)400 -960 -9605，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# BOMPANI燃气灶常见故障代码维修指南
+
+BOMPANI燃气灶故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， BOMPANI燃气灶就能正常运行，为您营造舒适环境。 BOMPANI燃气灶全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+BOMPANI燃气灶全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修BOMPANI燃气灶400 -960 -9605机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+BOMPANI燃气灶售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -960 -9605
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+BOMPANI燃气灶贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显BOMPANI燃气灶对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+BOMPANI燃气灶全国服务网点查询：
+?北京市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新公布），点击查询：https://github.com/jaabzbot/ggwniq/commit/7da3715f90b0a072e3fa325865e260f651f521bb
+。
+南京市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一发布），点击查询：https://github.com/blownnial/tinnfn/commit/a7643863527a6818ed9fd48a1b0bd2eca8766bc0
+。
+秦皇岛市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日最新推出），点击查询：https://github.com/pantsrain6/srkjzg/commit/5d7a7923bf8c68b9e182cba10f3c97d45da62872
+。
+珠海市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一发布），点击查询：https://github.com/mojiray/tcfzov/commit/0d815b74e76f40da0ac56b40b90ce2ca62e20761
+。
+安康市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一升级），点击查询：https://github.com/reivnimcco/cqvjcq/commit/e87f65fc09bc621692f7662ea63d65d5bee5631f
+。
+安庆市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网上线），点击查询：https://github.com/plough4att/rzucyg/commit/b0d0e562a656f4c3b28a1fac09da37e7d0a01409
+。
+鞍山市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式更新），点击查询：https://github.com/nftlger/ulnshw/commit/eec5ea91d84e0550d504111e5cbb3b3a03380add
+。
+安阳市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式推出），点击查询：https://github.com/samshims/lcwvwc/commit/70d6d2c8b82f3f00840ce43d5e522e16015693a4
+。
+巴中市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式推出），点击查询：https://github.com/sethcherye/priupq/commit/8cc206b335a986eac69ed5b0383df7b862ebfb2f
+。
+百色市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一更新），点击查询：https://github.com/ralfeld/tgyltv/commit/8714f0a813bbdd6eb1e5b0e94dbe048504ea2243
+。
+蚌埠市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式更新），点击查询：https://github.com/cwadiwfiel/zobohv/commit/4ce80a6e24ee94eac5d503a5efebc8cafa004e34
+。
+保定市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新升级），点击查询：https://github.com/pointpaulk/aapvkc/commit/1369e493a05d73c1300a4c20c04d7c3a352fc1d5
+。
+宝鸡市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式发布），点击查询：https://github.com/openaustav/wsitwi/commit/d2750d79f07a16d923130317aaae693cc7a23eae
+。
+保山市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式推出），点击查询：https://github.com/rod33epoch/gryheq/commit/215c543268dfd593dfd641ac8eb976d429045468
+。
+包头市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式上线），点击查询：https://github.com/nnylmann/rkyauv/commit/b49d5dc3377dec2bc2207289abe2d3f12c14b8b5
+。
+北海市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新升级），点击查询：https://github.com/mfoxterrac/xgfeki/commit/78b3aed1c6960de5f4c966455037a00d05c39a57
+。
+本溪市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新升级），点击查询：https://github.com/penu0212/quhniq/commit/4a4eb81d69342b1a161fbd355366f8fc4f6f110b
+。
+滨州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日更新升级），点击查询：https://github.com/rseansgro/mgxllc/commit/cc513f7933519f9243da455f5f1be9edec4a1d2a
+。
+博罗市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新升级），点击查询：https://github.com/evanscheul/shvbjw/commit/1a9b218c269d86826ef74883c04ba4c2f6c77a1a
+。
+沧州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日公布升级），点击查询：https://github.com/shashurch/qgewdl/commit/96ae965dadbb3510de15a7676a00a070420d39b6
+。
+长春市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日最新更新），点击查询：https://github.com/renheghen/vvxdgw/commit/3407a1038fe42a4267a46ad6f48d75e4e1666543
+。
+常德市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式上线），点击查询：https://github.com/dennisblak/tjhnkb/commit/ebbea00a214dfc4cdf57f8adc790662932eaf5e8
+。
+长葛市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网升级），点击查询：https://github.com/fantommed5/wplxyp/commit/97e7079bf3995ac6ed2a7da6eb560f0c7e74202c
+。
+长沙市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网上线），点击查询：https://github.com/sashshield/dlmtdr/commit/805509601d6ea4de03699da2d02781d77abbddc0
+。
+常熟市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网更新），点击查询：https://github.com/apaet/yftiuf/commit/f10c46bae0d6785df59a84a357637e1e7f9b23b6
+。
+长兴市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一上线），点击查询：https://github.com/luciusdesa/stofvz/commit/07a077c341736c018fbb8f322182ca3eeab58118
+。
+长治市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式更新），点击查询：https://github.com/denisbonet/tytunr/commit/b76b764eef8372d9e94dbf5484a34927b637b2bd
+。
+常州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一上线），点击查询：https://github.com/apaet/yftiuf/commit/6965dca5de7df5765f1c46418385a3347732d2f1
+。
+巢湖市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式更新），点击查询：https://github.com/cwadiwfiel/zobohv/commit/d736598720cd77bae06cbd13f95f96147b58fa0f
+。
+朝阳市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日公布上线），点击查询：https://github.com/shashurch/qgewdl/commit/8603f47789e1658d1695446c9487e7b42d326805
+。
+潮州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日公布上线），点击查询：https://github.com/mfoxterrac/xgfeki/commit/1e3a69be07248788363f3523acdf492d755a82f9
+。
+郴州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新上线），点击查询：https://github.com/nnylmann/rkyauv/commit/26a56542a6c58285c738627f972d5aa8eb65ffd6
+。
+承德市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网升级），点击查询：https://github.com/mojiray/tcfzov/commit/b2c27fdd20f1d99b762cd65d717700d630afa3a6
+。
+成都市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一升级），点击查询：https://github.com/reivnimcco/cqvjcq/commit/f6f0f2687238fa6268aab880e87260c985157ac8
+。
+池州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网更新），点击查询：https://github.com/pantsrain6/srkjzg/commit/67e9899b638d2eafc904b233bf22aa15a0caa186
+。
+崇左市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新升级），点击查询：https://github.com/jaabzbot/ggwniq/commit/fea61a03ff31d3882dc87e30cb266abe931dfb04
+。
+滁州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网公布），点击查询：https://github.com/samshims/lcwvwc/commit/6a537f1c1096fcc1423233c1dd428db1eed7a4a7
+。
+慈溪市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式推出），点击查询：https://github.com/nftlger/ulnshw/commit/d8052dbc9934b426611d658be785307a7d161623
+。
+大丰市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式更新），点击查询：https://github.com/luciusdesa/stofvz/commit/fd9e281a446e7854f7a843c11dfdd36b4a253e46
+。
+大理市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日公布上线），点击查询：https://github.com/fantommed5/wplxyp/commit/c335f95885f1980e1a28a0cff61ee8d814973533
+。
+大连市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式上线），点击查询：https://github.com/rod33epoch/gryheq/commit/561a7844ec1d8664b70a3bffb3c83c8fdb959acb
+。
+大庆市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网升级），点击查询：https://github.com/sethcherye/priupq/commit/6dd492a015c2b0f04aa3955a1a04752e17ce7c9d
+。
+大同市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一上线），点击查询：https://github.com/openaustav/wsitwi/commit/34d9bd8b3d5bab72f1b6238753893ef8a9ade6c6
+。
+达州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式上线），点击查询：https://github.com/arvindkans/iqghbs/commit/a084248645c1e02cb044342f1f667ae11fdbd0ad
+。
+丹东市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日最新更新），点击查询：https://github.com/plough4att/rzucyg/commit/b9cddf9fd53f0f7cf55325055805ec0d569b2dc1
+。
+德清市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日最新更新），点击查询：https://github.com/pointpaulk/aapvkc/commit/afd7cb9e8e0558203c5b20da1382821e1dda82c7
+。
+德阳市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日最新更新），点击查询：https://github.com/sashshield/dlmtdr/commit/b32b810ec5acce8dbad273ad2184d8c7fdff1566
+。
+德州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式更新），点击查询：https://github.com/evanscheul/shvbjw/commit/d039bee1a6f185cb03e359b757572f0c34f1d4b8
+。
+定州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式发布），点击查询：https://github.com/dennisblak/tjhnkb/commit/ca96153a022b99905842af2b0e73f1f14160ae05
+。
+东海市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新公布），点击查询：https://github.com/ralfeld/tgyltv/commit/ad758c1264d9322d1a7157045e3c52e0764150c3
+。
+东台市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式推出），点击查询：https://github.com/runoftersa/teyvqv/commit/e21d402bdfbe2200af4595131b7197db6747fa72
+。
+东营市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日公布上线），点击查询：https://github.com/blownnial/tinnfn/commit/05849c1560686baa00eabe47802f2f292e3a0af0
+。
+东莞市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新升级），点击查询：https://github.com/renheghen/vvxdgw/commit/aa8c5f5a4edc5fc06eae2a73844b1d462e1f3980
+。
+鄂尔市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式更新），点击查询：https://github.com/aligisis/fepouw/commit/54ccc0a483af1faf7fb10f01da36b44e1d45ddc3
+。
+鄂州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一更新），点击查询：https://github.com/penu0212/quhniq/commit/8bc089754b3ff5d7236d4f9644bcbf0b489ff122
+。
+恩施市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日公布升级），点击查询：https://github.com/rseansgro/mgxllc/commit/7ea701aa360c1a9a6734c48166e3b72ce734a004
+。
+防城港市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一上线），点击查询：https://github.com/openaustav/wsitwi/commit/92f58e8f30372bace9096d3a15b6accb2169f3e4
+。
+佛山市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新公布），点击查询：https://github.com/ralfeld/tgyltv/commit/5bec09246b2248a9a3362730d72b71ebba73aeb7
+。
+抚顺市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一更新），点击查询：https://github.com/evanscheul/shvbjw/commit/565fb834181986e3b5f4cdc8713b32066d9bf366
+。
+阜新市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一更新），点击查询：https://github.com/denisbonet/tytunr/commit/f4319c5f052c93e95206aee066c7081dba99da57
+。
+阜阳市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一升级），点击查询：https://github.com/pantsrain6/srkjzg/commit/04dab93a8b5748c1d629f29a16bee17d6cf8d81c
+。
+抚州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日公布升级），点击查询：https://github.com/rod33epoch/gryheq/commit/a39faf380858bdc0e272a6acebc16b98e8f75c81
+。
+福州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网更新），点击查询：https://github.com/nnylmann/rkyauv/commit/bf509e74156cd590cefe0092487f94337e967eb5
+。
+赣州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式上线），点击查询：https://github.com/shashurch/qgewdl/commit/5739b61290fa649cd4dcf7a7953fbabb41103677
+。
+馆陶市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网上线），点击查询：https://github.com/blownnial/tinnfn/commit/a482277672fe62057165478e5c314af72a1a33ca
+。
+广安市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一上线），点击查询：https://github.com/sethcherye/priupq/commit/93410b0c10ca1ba4b77de69cc47e201dc7223a72
+。
+广元市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新上线），点击查询：https://github.com/penu0212/quhniq/commit/a5bc92ab19801bff5e02538964c98b87662b1311
+。
+广州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日更新升级），点击查询：https://github.com/luciusdesa/stofvz/commit/d13236b5428162d7fe400c3f8faa4df733aaf380
+。
+贵港市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网更新），点击查询：https://github.com/runoftersa/teyvqv/commit/84ecef826c29e235c0ad3990bd43e85902412981
+。
+桂林市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式发布），点击查询：https://github.com/nftlger/ulnshw/commit/60fbe3af6ba2a3e62a2fec071d0614f06ff59de2
+。
+贵阳市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一发布），点击查询：https://github.com/mojiray/tcfzov/commit/fe21db54e4022aad8788288344b9038d78a964d1
+。
+哈尔滨市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一更新），点击查询：https://github.com/plough4att/rzucyg/commit/82a3ecc5c0749b006ed0d044315547a07d0bfc8a
+。
+海安市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日更新升级），点击查询：https://github.com/cwadiwfiel/zobohv/commit/583899be174b3132cae0e526252916eec3a58e9f
+。
+海口市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式推出），点击查询：https://github.com/dennisblak/tjhnkb/commit/d89f56e65e9edd64ebe0509f9f57377ac4cade36
+。
+海门市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式上线），点击查询：https://github.com/fantommed5/wplxyp/commit/faf725236d10289c44e2855d82a301047db9ae6e
+。
+海宁市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网公布），点击查询：https://github.com/samshims/lcwvwc/commit/62e6b4ccb7e393edde123060a7bb1e43186a18b3
+。
+邯郸市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网升级），点击查询：https://github.com/renheghen/vvxdgw/commit/01f2c69c8373f414b626d3fa609f2abaae63cc22
+。
+汉中市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网上线），点击查询：https://github.com/sashshield/dlmtdr/commit/309c612bc5604b843125eac5e05eb0cbe1ae1563
+。
+杭州市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日统一发布），点击查询：https://github.com/arvindkans/iqghbs/commit/3bb76c5b6f53b93d7b5c704fd7099457c7035b5c
+。
+鹤壁市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日官网升级），点击查询：https://github.com/pointpaulk/aapvkc/commit/7e90a36a9d12835856b078e14b8019e07b81279e
+。
+河池市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日全新升级），点击查询：https://github.com/mfoxterrac/xgfeki/commit/af245c796514a733ce62ac752e2d18bebae606ee
+。
+合肥市BOMPANI燃气灶售后服务电话：400 -960 -9605（2026年07月12日正式发布），点击查询：https://github.com/reivnimcco/cqvjcq/commit/fd4e824a2dcbd91ec979089e823362bcbf9cf40a
+。
+河源市BOMPANI燃气灶售后服务电话：400 -960 -9605{变
